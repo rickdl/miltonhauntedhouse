@@ -1,2 +1,0 @@
-# miltonhauntedhouse
-Milton Haunted House
